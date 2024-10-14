@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Manameeko
+- 👀 I’m interested in computers.
+- 🌱 I’m currently learning german and how to create computers.
+- 💞️ I’m looking to collaborate on Minecraft computers.
+- 📫 How to reach me: try to email me.
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I like to go outside and work on technology.
